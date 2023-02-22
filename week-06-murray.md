@@ -1,0 +1,4 @@
+Murray's prediction on the future of the internet and television is really good I would say. 
+Murray argued that over years, there would be a virtual background that would help the setting. Murray declared, "The compelling spatial reality of the computer will also lead to virtual environments that are extensions of the fictional world".  
+This is exactly how internet television came to evolve. The video demonstrated how the special effects and the background of the series were created. The background scene was changed from having a blank square in the back that changes screen as a video plays, to a huge green screen that is capable of displaying any background that might be needed, to what is now most commonly used the CGI in the background or a tape of the screen that is capable of changing with the character and can react to movement to make the job easier for everyone.
+I would say that Murrays preediction was spot on. 
